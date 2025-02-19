@@ -1,0 +1,1 @@
+Welcome to NewsWave, your one-stop destination for the latest and most comprehensive news across the globe. Our website is designed to bring you up-to-date news stories, insightful commentary, and in-depth analyses on a variety of topics. Whether you're interested in politics, technology, entertainment, sports, or lifestyle, we have something for you
